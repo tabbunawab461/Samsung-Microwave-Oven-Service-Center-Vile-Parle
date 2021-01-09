@@ -1,0 +1,2 @@
+# Samsung-Microwave-Oven-Service-Center-Vile-Parle
+Microwave oven we can cook only and reheat and defrost the food but in convection microwave oven we have all options for cook the food. Solo microwave ovens comprise the heat magnetron called magnetron waves. Solo microwave oven is less expensive; in solo microwave oven we have more features like power consumption, child lock, preheat, timer and touch. https://samsung-servicecenterinmumbai.com/samsung-microwave-oven-service-center-vile-parle/
